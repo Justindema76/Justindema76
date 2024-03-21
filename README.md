@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Justindema76
-- 👀 I’m interested in watching movies, nfl football
-- 🌱 I’m currently learning Web Development
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested becoming a Tech Savy Web Developer
+- 🌱 I’m currently learning Web Development at Trios College
+- 💞️ I’m looking to collaborate on ANYTHING...
 - 📫 How to reach me at justindema76@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I have a crazy Doberman named Prada
